@@ -81,7 +81,7 @@ Akan terus ditambah seiring pengembangan web, dan fitur ini dapat di test langsu
 --------------------------------------------------------------------------------------------------------------------------------------------
 
 ## Author:
-[Emal/HebatLuBot](https://HebatLuBot.site/HebatLuBoy.html)
+[WEBSITE DEMO](https://HebatLuBoy.com)
 
-# Donation:
+# Original WEB:
 https://saweria.co/HebatLuBoy/
