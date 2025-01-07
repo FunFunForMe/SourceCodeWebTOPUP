@@ -74,7 +74,7 @@ Akan terus ditambah seiring pengembangan web, dan fitur ini dapat di test langsu
 
 ## Contact Me:
 [maL](https://t.me/HebatLuBoy)
-**PM FOR PRICE**
+**NEGO/TANYA TANYA PM ME**
 
 # ORIGINAL WEB:
 [TOPUPGEM](https://topupgem.online/)
